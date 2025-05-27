@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @chriszed
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning IB
+- 🌱 I’m currently in college
 - 💞️ I’m looking to learn coding
 - 📫 reach me on https://twitter.com/chriszedd4
 
